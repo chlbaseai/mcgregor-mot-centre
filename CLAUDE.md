@@ -27,7 +27,7 @@ All original site content, structure, and assets are documented in these referen
 - **Phone:** 0131 554 3999
 - **Email:** mcgregormot1@aol.com
 - **Hours:** Mon-Fri 8:30am-5:00pm | Sat 9:00am-1:00pm | Sun closed
-- **Established:** 20+ years of service
+- **Established:** 40+ years of service (established 1982)
 - **Certifications:** VOSA approved MOT testing centre
 - **Character:** Honest, friendly, no-nonsense. Small independent garage known for personal service, trustworthy work, and competitive pricing. Strong local reputation.
 
